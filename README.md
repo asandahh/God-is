@@ -1,2 +1,3 @@
 # God-is
-We ma we're making a friend that shows you that God is everything 
+God is everything and nothing 
+and above all God shall always be
